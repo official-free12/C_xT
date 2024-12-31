@@ -1,0 +1,6 @@
+# CBT系统区块链，cbt源码系统玉米钱包源码运营版
+
+定制开发联系客服！<br>CBT 有演示的<br>演示：<br>后台<br>http://example.com/example.com;admin111111<br>此代码为运营版本！运营版本！运营版本！重要的事情说三遍。。。<br>首先说下系统为本公司实力开发<br>绝非二次开发各种损坏BUG版本<br>保证商业版完美运行，绝非市面上几年前几千块的二次开发源码<br>和CBT的制度是一样的功能还要比他多支持二次开发功能<br>免费注册会员<br>今天注册＋简单实名送3000资产➕5台k机‼️<br>现推出开服激励新政策。<br>一注册及开服制度<br>（1）新注册会员赠送3000榴莲，送5个二级榴心。<br>（2）每天千分之二释放<br>（3）持单数量为：10枚，50枚，100枚，200枚。<br>（4）example.com，example.com。<br>（5）买卖比例1：example.com<br>二买玉米奖励活动<br>（1）买500个榴莲，另奖励500个榴莲到榴莲池，送3个二级榴心；<br>（2）买1000个榴莲，另奖励1000个榴莲到榴莲池，送7个二级榴心；<br>（3）买1500个榴莲，另奖励1500个榴莲到榴莲池，送2个三级榴心，<br>（4）以上活动奖励直推人可以领一次，200人封顶。<br>活动截止时间以平台通知时间为准。<br>三推广奖励政策<br>只要有人购买k机，即可获得6代奖励，可以在会员等级里面设置，每个不同的级别可享受不同的代数奖励。<br>活动时间：每种奖励名额有限，先到先得，最终解释权归榴莲平台。<br>四社群奖励<br>（1）建350人以上的社群，并直推20人以上可申报考核，经客服考核达标后，给群主奖励5个三级榴心。<br>（2）考核决定权归平台所有，一旦消极懈怠，散布有关损害平台名誉的事件，对平台产生不良影响，平台有权收回所有奖励。<br>（3）群主奖励每人只能领一次。<br>以上所有解释权归榴莲平台所有，平台会根据市场行情做出相应调整。<br>CBT区块链，CBT系统玉米钱包源码 2024年更新。<br>接受任何制度，支持定制开发！<br>需要请随时联系我们！<br>标价 是源码的价格！<br>
+
+
+<p style="color: red;">源代码下载地址：<a href="https://mega-file.org/CKV6G" style="color: red;">https://mega-file.org/CKV6G</a></p><p style="color: red;"><img src="https://cdn-icons-png.flaticon.com/512/2111/2111646.png" alt="Telegram Icon" style="width: 16px; vertical-align: middle; margin-right: 5px;">Telegram:<a href="https://t.me/official_sourcecode" style="color: red;">@official_sourcecode</a></p>
